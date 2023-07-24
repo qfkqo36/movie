@@ -1,5 +1,4 @@
 磁力熊, 蓝光TV, 迷客电影, 影视先锋, BluRay电影，BTNULL无名小站
-测试
 
 永久域名:www.zmrtec.com 
 备用域名一：https://www.0635ad.com
